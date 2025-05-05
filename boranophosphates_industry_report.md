@@ -98,4 +98,22 @@ The boronophosphates market is characterized by the presence of several key play
 ---
 
 ## About Transparency Market Research
-Transparency Market Research, a global market research company registered at Wilmington, Delaware, United States, provides custom research and consulting services. Our exclusive blend of quantitative forecasting and trends analysis provides forward-looking insights for thousands of decision makers. Our experienced team of Analysts, Researchers, and Consultants use proprietary data sources and various tools & techniques to gather and analyze
+
+Transparency Market Research, registered in Wilmington, Delaware, USA, provides custom research and consulting services, offering forward-looking insights through quantitative forecasting and trends analysis. Their experienced team utilizes proprietary data sources and rigorous research techniques.
+
+**Contact:**
+
+Transparency Market Research Inc.
+CORPORATE HEADQUARTER DOWNTOWN,
+1000 N. West Street,
+Suite 1200, Wilmington, Delaware 19801 USA
+Tel: +1-518-618-1030
+USA – Canada Toll Free: 866-552-3453
+Website: https://www.transparencymarketresearch.com
+Email: sales@transparencymarketresearch.com
+
+
+
+
+
+
